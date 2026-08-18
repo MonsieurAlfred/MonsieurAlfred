@@ -1,5 +1,5 @@
 ## 𝄞 ♪♫
-- ✒  Welcome my mate
+- ✒  
 
 
 I'm Alfred  , minors mostly dni : adult : int freely 🦇 Im really shy but i would not judge you  ;; find me on patreon / everskies / tumblr 
