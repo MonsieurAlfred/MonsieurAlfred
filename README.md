@@ -1,5 +1,6 @@
 ## Welcome
-I'm Alfred  , minors mostly dni : adult : int freely 🦇 Im really shy but i would not judge you  ;; 
+I'm Alfred  , minors mostly dni : adult : int freely 🦇 Im really shy but i would not judge you  ;; find me on patreon / everskies / tumblr 
+ı would love to chat with anyone 🎼🎹 ı play violin and piano 
 <!--
 **MonsieurAlfred/MonsieurAlfred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
