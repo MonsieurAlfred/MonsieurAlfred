@@ -27,9 +27,7 @@ Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, 
 </div>
 
 
-<div align="center">
-  <img src="https://i.pinimg.com/736x/bd/6d/df/bd6ddf4a5b4c4b470aa23be6620be453.jpg" >   
-</div>
+
 
 <div align="center">
 <table align="center" style="margin: 0 auto;">
@@ -81,4 +79,8 @@ Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, 
     </td>
   </tr>
 </table>
+</div>
+
+<div align="center">
+  <img src="https://i.pinimg.com/736x/bd/6d/df/bd6ddf4a5b4c4b470aa23be6620be453.jpg" >   
 </div>
