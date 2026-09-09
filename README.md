@@ -21,6 +21,32 @@ The Revenant Choir, Shout & Bites, A Noble Was Born in Chaos, Aristocrat's Symph
 JEAN-PHILIPPE RAMEAU
 Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, Dardanus, La Princesse de Navarre, Platée, Les Fêtes de Polymnie, Le Temple de la Gloire, Les Fêtes de l'Hymen et de l'Amour, Zaïs, Naïs, Zoroastre, La Naissance d'Osiris, Anacréon, Les Surprises de l'Amour, Les Paladins, Les Boréades, Nélée et Myrthis, Zéphire, Io, Pygmalion, Acante et Céphise, Lysis et Délie, Samson, Linus, Pandore, Les Tendres Plaintes, Les Cyclopes, La Villageoise, Le Rappel des Oiseaux, La Poule, Les Sauvages, Les Trois Mains, L'Enharmonique, L'Egyptienne, La Coulicam, La Livri, La Forqueray, L'Agaçante, La Timide, La Pantomime, L'Indiscrète, Deus Noster Refugium, In Convertendo, Quam Dilecta, Laboravi.
 
+<div align="center">
+<table align="center" style="margin: 0 auto; width: 100%; max-width: 1000px;">
+  <tr>
+    <!-- SOL SÜTUN: BAŞLIKLAR VE GÖRSEL -->
+    <td valign="middle" align="center" style="width: 40%; background-color: #000000; padding: 20px;">
+      <h1 style="color: #ffffff; font-family: serif; letter-spacing: 4px; margin-bottom: 5px;">VAMPIRISM</h1>
+      <h3 style="color: #cccccc; font-family: serif; letter-spacing: 2px; margin-top: 0;">THE TRUTH</h3>
+      <hr style="border-color: #333333; width: 60%;">
+      <p style="color: #888888; font-size: 14px; letter-spacing: 1px;">THE POWER OF HYPNOTISM</p>
+      <br>
+      <img src="https://pinimg.com" width="280" alt="vampire-portrait" style="border: 1px solid #222222;">
+    </td>
+    
+    <!-- SAĞ SÜTUN: DİKEY KİTAP METNİ (YATAY HİZALANMIŞ) -->
+    <td valign="top" align="left" style="width: 60%; background-color: #000000; color: #e0e0e0; padding: 30px; font-family: serif; font-size: 15px; line-height: 1.7; text-align: justify; border-left: 1px solid #333333;">
+      <p>IT was the former human confidant, Cristian Flores, which popularised the transition of hypnotism within humanised vampires into the legends. Converted at the descent of Roman Empire rule in Italy, not only had he became the oldest living vampire in our history, but he later surpassed his peers. He began to massacre his own kind to maintain his influence and power.</p>
+      
+      <p>He was one that his creators favoured, being their first successful conversion in many eons. Flores took advantage of his favouritism among the elder demons, they, like they had with me, allowing him access to the secrets of their world. It was the hypnotism stone ring that was first exposed to his greedy eyes.</p>
+      
+      <p>Upon slipping the ring upon his fingers, he inherited memories surpassing thousands of years. These on-going memories were implanted into his mind and never left. He was enamoured by the millions of possibilities; how he could use it. Cristian Flores thought beyond biological conversion beyond seeking blood. With this power of hypnotism, he could gain control of cultures, people.</p>
+      
+      <p>He had manipulated the instinctive structures of vampirism by harbouring the corrupted ideals of man-kind, taking the cultural impacts of harems and polygamy and infiltrating them into our own. You can say, that his characteristics resemble that of Abrahamic demons, no?</p>
+    </td>
+  </tr>
+</table>
+</div>
 
 
 
