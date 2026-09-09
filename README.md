@@ -1,6 +1,5 @@
 ## 𝄞 ♪♫
-- Greetings `, Im Alfred  .  Minors dni unless you want a little chat ! c + h freely 🎼 ::  mostly playing Bloodborne , Elden ring , Dark souls , hoi4 , holdfast and everskies 
-- 
+-
 <!--
 **MonsieurAlfred/MonsieurAlfred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
