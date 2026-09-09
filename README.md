@@ -28,6 +28,6 @@ Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, 
 
 
 <div align="center">
-  <img src="https://i.pinimg.com/736x/46/61/ca/4661ca33ea81cfa693c829f28d91b355.jpg" >
+  <img src="https://i.pinimg.com/736x/bd/6d/df/bd6ddf4a5b4c4b470aa23be6620be453.jpg" >
 </div>
 
