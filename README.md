@@ -86,6 +86,6 @@ Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, 
 </div>
 
 <div align="center">
-  <img src="https://pngall.com" width="350" alt="the-doll">
+  <img src="https://i.pinimg.com/736x/e4/ac/53/e4ac5350c5ad3b33bd58c968f369f736.jpg">
 </div>
 
