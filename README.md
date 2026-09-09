@@ -34,7 +34,7 @@ Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, 
   <tr>
     <!-- SOL TARAF: FOTOĞRAF -->
     <td valign="top" align="left">
-      <img src="[https://pinimg.com](https://i.pinimg.com/736x/c5/80/e4/c580e4f57e5ae1a7fb48b26f9fd83fc9.jpg)" width="350" alt="profil-resmi">
+      <img src="mhttps://i.pinimg.com/736x/c5/80/e4/c580e4f57e5ae1a7fb48b26f9fd83fc9.jpg" width="350" alt="profil-resmi">
     </td>
     <!-- SAĞ TARAF: ŞARKI SÖZLERİNİN TAMAMI -->
     <td valign="top" align="left" style="padding-left: 30px; line-height: 1.6; text-align: left;">
