@@ -22,9 +22,7 @@ JEAN-PHILIPPE RAMEAU
 Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, Dardanus, La Princesse de Navarre, Platée, Les Fêtes de Polymnie, Le Temple de la Gloire, Les Fêtes de l'Hymen et de l'Amour, Zaïs, Naïs, Zoroastre, La Naissance d'Osiris, Anacréon, Les Surprises de l'Amour, Les Paladins, Les Boréades, Nélée et Myrthis, Zéphire, Io, Pygmalion, Acante et Céphise, Lysis et Délie, Samson, Linus, Pandore, Les Tendres Plaintes, Les Cyclopes, La Villageoise, Le Rappel des Oiseaux, La Poule, Les Sauvages, Les Trois Mains, L'Enharmonique, L'Egyptienne, La Coulicam, La Livri, La Forqueray, L'Agaçante, La Timide, La Pantomime, L'Indiscrète, Deus Noster Refugium, In Convertendo, Quam Dilecta, Laboravi.
 
 
-<div align="center">
-  <img src="https://i.pinimg.com/736x/16/a4/15/16a41563e9d73b7563eb4ad69ac03130.jpg" >
-</div>
+
 
 
 <div align="center">
