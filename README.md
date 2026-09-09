@@ -1,6 +1,6 @@
 ## 𝄞 ♪♫
 <div align="center">
-  <img src="https://i.pinimg.com/736x/0a/5f/3e/0a5f3e0842f842d8dc6ce53c45a1a5fa.jpg" width="400" alt="kedi">
+  <img src="https://i.pinimg.com/736x/c5/80/e4/c580e4f57e5ae1a7fb48b26f9fd83fc9.jpg" >
 </div>
 
 --MALICE MIZER
