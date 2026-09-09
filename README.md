@@ -1,6 +1,6 @@
 ## 𝄞 ♪♫
 - The Sect, The Prophet, Je l'aime.
-<!--MALICE MIZER
+--MALICE MIZER
 Sans Logique, Sadness, Speed of Desperate, The 1th Anniversary, Uruwashiki Kamen no Shoutaijou, Après Midi (Aru Pari no Gogo de), Ma Chérie (Itoshii Kimi e), Regret, Bel Air (Kūhaku no Shunkan no Naka de), Color Me Blood Red, Au Revoir, En Lumière, Gekka no Yasōkyoku, Illuminati, N-p-s N-g-s, Le Ciel (Kūhaku no Kanata e), Saikai no Chi to Bara, Kyomu no Naka de no Yūgi, Shiroi Hada ni Kurū Ai to Kanashimi no Rondo, Prologue: Kaisou, Gardenia, Houkai Jokyoku, Beast of Blood, Baptism of Blood, Bara no Souretsu, Mayonaka ni Kawashita Yakusoku, Seinaru Toki Eien no Inori, Chikasuimyaku no Meiro, Garnet (Kindan no Sono e), Gensou Rakuen.
 
 BLAM HONEY
