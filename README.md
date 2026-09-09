@@ -1,5 +1,7 @@
 ## 𝄞 ♪♫
-- The Sect, The Prophet, Je l'aime.
+<div align="center">
+  <img src="https://i.pinimg.com/736x/0a/5f/3e/0a5f3e0842f842d8dc6ce53c45a1a5fa.jpg" width="400" alt="kedi">
+</div>
 
 --MALICE MIZER
 Sans Logique, Sadness, Speed of Desperate, The 1th Anniversary, Uruwashiki Kamen no Shoutaijou, Après Midi (Aru Pari no Gogo de), Ma Chérie (Itoshii Kimi e), Regret, Bel Air (Kūhaku no Shunkan no Naka de), Color Me Blood Red, Au Revoir, En Lumière, Gekka no Yasōkyoku, Illuminati, N-p-s N-g-s, Le Ciel (Kūhaku no Kanata e), Saikai no Chi to Bara, Kyomu no Naka de no Yūgi, Shiroi Hada ni Kurū Ai to Kanashimi no Rondo, Prologue: Kaisou, Gardenia, Houkai Jokyoku, Beast of Blood, Baptism of Blood, Bara no Souretsu, Mayonaka ni Kawashita Yakusoku, Seinaru Toki Eien no Inori, Chikasuimyaku no Meiro, Garnet (Kindan no Sono e), Gensou Rakuen.
@@ -21,5 +23,5 @@ Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, 
 
 
 <div align="center">
-  <img src="https://i.pinimg.com/736x/0a/5f/3e/0a5f3e0842f842d8dc6ce53c45a1a5fa.jpg" width="400" alt="kedi">
+  <img src="https://i.pinimg.com/736x/16/a4/15/16a41563e9d73b7563eb4ad69ac03130.jpg" >
 </div>
