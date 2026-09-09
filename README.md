@@ -1,14 +1,6 @@
 ## 𝄞 ♪♫
-- ✒  
-
-
-I'm Alfred  , minors mostly dni : adult : int freely 🦇 Im really shy but i would not judge you  ;; find me on patreon / everskies / tumblr 
-ı would love to chat with anyone 🎼🎹 ı play violin and piano ,, you can always dm me if you are in a bad mood  , sad  , need to vent ;; ♟️ , I would love to make friends! 🏹 we can talk about anything ; do not feel shu around me i won't judge you so feel free and be yourself ,  ♠️  ,  thats all i will be saying from now on ::🐈‍⬛:: 
-- 🦇  ;;  ı love to talk about my interests a lot so i yap a lot sometimes !
-- ♣️ :: please use tonetags with me
-- ♠️ :: i am very polite but also shy and sensitive so be careful about what you say about me / while talking to me
-- 🗡 :: I wont tell the games i play unless we are friends
-- ♟️ :: that was all! take care  ,  good evening  , good morning 🐈‍⬛
+- Greetings `, Im Alfred  .  Minors dni unless you want a little chat ! c + h freely 🎼 ::  mostly playing Bloodborne , Elden ring , Dark souls , hoi4 , holdfast and everskies 
+- 
 <!--
 **MonsieurAlfred/MonsieurAlfred** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
