@@ -1,6 +1,6 @@
 ##  HUNTER
 <div align="center">
-  <img src="https://i.pinimg.com/originals/ee/8a/8b/ee8a8b6433fe7de7baf9e71cdbd83f58.gif">
+  <img src="https://i.pinimg.com/originals/53/8a/a1/538aa19b1863621c15982936344d72c3.gif">
 </div>
 
 
