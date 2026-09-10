@@ -13,8 +13,9 @@
 
 
 <div align="center">
-  <img src="https://i.pinimg.com/736x/ee/b4/74/eeb474e62d0471b0b6a0b927c2d3ea0a.jpg" width="350" >
+  <img src="https://i.pinimg.com/originals/be/73/96/be739649698b4bbfafc1d4da060eb75e.gif">
 </div>
+
 
 --MALICE MIZER
 Sans Logique, Sadness, Speed of Desperate, The 1th Anniversary, Uruwashiki Kamen no Shoutaijou, Après Midi (Aru Pari no Gogo de), Ma Chérie (Itoshii Kimi e), Regret, Bel Air (Kūhaku no Shunkan no Naka de), Color Me Blood Red, Au Revoir, En Lumière, Gekka no Yasōkyoku, Illuminati, N-p-s N-g-s, Le Ciel (Kūhaku no Kanata e), Saikai no Chi to Bara, Kyomu no Naka de no Yūgi, Shiroi Hada ni Kurū Ai to Kanashimi no Rondo, Prologue: Kaisou, Gardenia, Houkai Jokyoku, Beast of Blood, Baptism of Blood, Bara no Souretsu, Mayonaka ni Kawashita Yakusoku, Seinaru Toki Eien no Inori, Chikasuimyaku no Meiro, Garnet (Kindan no Sono e), Gensou Rakuen.
@@ -119,3 +120,6 @@ Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, 
 
 If you scrolled all the way down here just to read this text well thank you first of all  , well Im a friendly person I dont mind if you chat with me, interact with me on any game or platform, sit right next to me or just ask questions Id love to talk about anything just want you to know feel free to talk about yout interests ! for example I want to read the Innocent manga its based off an book I liked a lot! whats yours? tell me (‾◡◝) If you feel shy thats okay because i understand how it feels to be since im a very shy person to myself so youre not alone （*＾-＾*） well thats all from now onnnnn take care !
 
+<div align="center">
+  <img src="https://i.pinimg.com/736x/ee/b4/74/eeb474e62d0471b0b6a0b927c2d3ea0a.jpg" width="350" >
+</div>
