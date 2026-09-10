@@ -18,7 +18,7 @@
 </div>
 
 <div align="center">
-  <img src="https://i.pinimg.com/736x/a7/22/bb/a722bb35ba3e1cb3484e3910c58121ea.jpg"  width="400" >
+  <img src="https://i.pinimg.com/736x/ee/b4/74/eeb474e62d0471b0b6a0b927c2d3ea0a.jpg" >
 </div>
 
 --MALICE MIZER
