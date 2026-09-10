@@ -1,5 +1,9 @@
 ##  HUNTER
 <div align="center">
+  <img src="https://y2k.neocities.org/stamps2/_stamp__plain_doll_01_by_cute_quts-da7y04e.png" >
+</div>
+
+<div align="center">
   <img src="https://i.pinimg.com/736x/a7/22/bb/a722bb35ba3e1cb3484e3910c58121ea.jpg"  width="400" >
 </div>
 
