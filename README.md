@@ -1,8 +1,9 @@
 ##  HUNTER
 <div align="center">
-  <img src="https://i.pinimg.com/originals/ee/8a/8b/ee8a8b6433fe7de7baf9e71cdbd83f58.gif
-">
+  <img src="https://i.pinimg.com/originals/ee/8a/8b/ee8a8b6433fe7de7baf9e71cdbd83f58.gif">
 </div>
+
+
 <div align="center">
   <img src="https://y2k.neocities.org/stamps/tumblr_inline_pbucbotQK61w0jw8b_1280.png">
 </div>
