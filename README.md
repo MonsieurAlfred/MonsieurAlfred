@@ -1,6 +1,6 @@
 ##  HUNTER
 <div align="center">
-  <img src="https://y2k.neocities.org/stamps/tumblr_inline_p1fyv1nUPi1rv0j40_500.png">
+  <img src="https://y2k.neocities.org/stamps/tumblr_inline_pbucbotQK61w0jw8b_1280.png">
 </div>
 <div align="center">
   <img src="https://y2k.neocities.org/stamps2/_stamp__alfred__hunter_of_vilebloods_by_cute_quts-da7znz9.png">
