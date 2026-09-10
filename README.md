@@ -43,11 +43,15 @@ MOI DIX MOIS
 Dix Infernal, La Dix Croix, Front et Baiser, Ange, Tentation, Solitude, Pessimiste, Gloire Dans le Silence, L'Intérieur Dix, Dix Est Infini, Dialogue Symphonie-X, Vizard, Silent Omen, Shadows Temple, Shadow Temple-X, Nocturnal Romance, Monophobia, Vain, Détresse, Perish, Neo Pessimist, Lilac of Damnation, Lapis Night's Dream, Lamentful Miss, Immortal Madness, Exclude, Dispell Bound, Dead Scape, The Sect, The Prophet, Je l'aime.
 
 <div align="center">
-  <img src="https://y2k.neocities.org/stamps/tumblr_pgef2uZbKY1xzybrpo1_100.gif" >   
+  <img src="https://y2k.neocities.org/stamps/tumblr_pgef2uZbKY1xzybrpo1_100.gif" >  
 </div>
 
 VERSAILLES
 The Revenant Choir, Shout & Bites, A Noble Was Born in Chaos, Aristocrat's Symphony, Prince, Prince & Princess, Silent Knight, Ascendead Master, Gekkakou, Serenade, Destiny -The Lovers-, Philia, Masquerade, Vampire, Rhapsody of the Darkness, Truth, Rose, Ayakashi, Love Will Be Born Again, The Red Carpet Day, Sforzando, VOGUE, To The Chaos Inside, Episode.
+
+<div align="center">
+  <img src="https://y2k.neocities.org/stamps/tumblr_pdtswyY1sp1wpplaao6_250.jpg" >  
+</div>
 
 JEAN-PHILIPPE RAMEAU
 Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, Dardanus, La Princesse de Navarre, Platée, Les Fêtes de Polymnie, Le Temple de la Gloire, Les Fêtes de l'Hymen et de l'Amour, Zaïs, Naïs, Zoroastre, La Naissance d'Osiris, Anacréon, Les Surprises de l'Amour, Les Paladins, Les Boréades, Nélée et Myrthis, Zéphire, Io, Pygmalion, Acante et Céphise, Lysis et Délie, Samson, Linus, Pandore, Les Tendres Plaintes, Les Cyclopes, La Villageoise, Le Rappel des Oiseaux, La Poule, Les Sauvages, Les Trois Mains, L'Enharmonique, L'Egyptienne, La Coulicam, La Livri, La Forqueray, L'Agaçante, La Timide, La Pantomime, L'Indiscrète, Deus Noster Refugium, In Convertendo, Quam Dilecta, Laboravi.
