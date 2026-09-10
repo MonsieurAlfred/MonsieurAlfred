@@ -85,6 +85,9 @@ Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, 
   <img src="https://i.pinimg.com/736x/16/a4/15/16a41563e9d73b7563eb4ad69ac03130.jpg" >   
 </div>
 
+
+If you scrolled all the way down here just to read this text well thank you first of all  , well Im a friendly person I dont mind if you chat with me, interact with me on any game or platform, sit right next to me or just ask questions Id love to talk about anything just want you to know feel free to talk about yout interests ! for example I want to read the Innocent manga its based off an book I liked a lot! whats yours? tell me (‾◡◝) 
+
 <div align="center">
   <img src="https://i.pinimg.com/736x/e4/ac/53/e4ac5350c5ad3b33bd58c968f369f736.jpg">
 </div>
