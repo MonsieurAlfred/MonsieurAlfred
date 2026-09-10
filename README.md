@@ -1,4 +1,8 @@
 ##  HUNTER
+
+<div align="center">
+  <img src="https://y2k.neocities.org/stamps2/_stamp__alfred__hunter_of_vilebloods_by_cute_quts-da7znz9.png">
+</div>
 <div align="center">
   <img src="https://y2k.neocities.org/stamps2/_stamp__plain_doll_01_by_cute_quts-da7y04e.png" >  <div align="center">
   <img src="https://y2k.neocities.org/stamps2/_stamp_bloodborne__maria_by_professorblood2004-dc5gwv8.png" >
