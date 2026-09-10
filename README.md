@@ -21,6 +21,10 @@ Enlarge Disorder, Hyper Aesthesia, Generous Fortune in the Garden (Part 1), Deep
 KAYA
 Kaleidoscope, Remains of Mind, Kaleidoscope -Glitter mix-, Walküre, Paradise Lost, Psycho Butterfly -Nightmare mix-.
 
+<div align="center">
+  <img src="https://y2k.neocities.org/stamps/tumblr_inline_pe6lc7ijO61v11djx_1280.gif" >   
+</div>
+
 MOI DIX MOIS
 Dix Infernal, La Dix Croix, Front et Baiser, Ange, Tentation, Solitude, Pessimiste, Gloire Dans le Silence, L'Intérieur Dix, Dix Est Infini, Dialogue Symphonie-X, Vizard, Silent Omen, Shadows Temple, Shadow Temple-X, Nocturnal Romance, Monophobia, Vain, Détresse, Perish, Neo Pessimist, Lilac of Damnation, Lapis Night's Dream, Lamentful Miss, Immortal Madness, Exclude, Dispell Bound, Dead Scape, The Sect, The Prophet, Je l'aime.
 
