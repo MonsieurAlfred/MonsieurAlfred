@@ -86,7 +86,7 @@ Hippolyte et Aricie, Les Indes Galantes, Castor et Pollux, Les Fêtes d'Hébé, 
 </div>
 
 
-If you scrolled all the way down here just to read this text well thank you first of all  , well Im a friendly person I dont mind if you chat with me, interact with me on any game or platform, sit right next to me or just ask questions Id love to talk about anything just want you to know feel free to talk about yout interests ! for example I want to read the Innocent manga its based off an book I liked a lot! whats yours? tell me (‾◡◝) 
+If you scrolled all the way down here just to read this text well thank you first of all  , well Im a friendly person I dont mind if you chat with me, interact with me on any game or platform, sit right next to me or just ask questions Id love to talk about anything just want you to know feel free to talk about yout interests ! for example I want to read the Innocent manga its based off an book I liked a lot! whats yours? tell me (‾◡◝) If you feel shy thats okay because i understand how it feels to be since im a very shy person to myself so youre not alone （*＾-＾*） well thats all from now onnnnn take care !
 
 <div align="center">
   <img src="https://i.pinimg.com/736x/e4/ac/53/e4ac5350c5ad3b33bd58c968f369f736.jpg">
