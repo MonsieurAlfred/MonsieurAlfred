@@ -28,6 +28,10 @@ Kaleidoscope, Remains of Mind, Kaleidoscope -Glitter mix-, Walküre, Paradise Lo
 MOI DIX MOIS
 Dix Infernal, La Dix Croix, Front et Baiser, Ange, Tentation, Solitude, Pessimiste, Gloire Dans le Silence, L'Intérieur Dix, Dix Est Infini, Dialogue Symphonie-X, Vizard, Silent Omen, Shadows Temple, Shadow Temple-X, Nocturnal Romance, Monophobia, Vain, Détresse, Perish, Neo Pessimist, Lilac of Damnation, Lapis Night's Dream, Lamentful Miss, Immortal Madness, Exclude, Dispell Bound, Dead Scape, The Sect, The Prophet, Je l'aime.
 
+<div align="center">
+  <img src="https://y2k.neocities.org/stamps/tumblr_pgef2uZbKY1xzybrpo1_100.gif" >   
+</div>
+
 VERSAILLES
 The Revenant Choir, Shout & Bites, A Noble Was Born in Chaos, Aristocrat's Symphony, Prince, Prince & Princess, Silent Knight, Ascendead Master, Gekkakou, Serenade, Destiny -The Lovers-, Philia, Masquerade, Vampire, Rhapsody of the Darkness, Truth, Rose, Ayakashi, Love Will Be Born Again, The Red Carpet Day, Sforzando, VOGUE, To The Chaos Inside, Episode.
 
